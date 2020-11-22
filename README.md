@@ -1,2 +1,0 @@
-Piotr Szcząchor
-GitHub page:
